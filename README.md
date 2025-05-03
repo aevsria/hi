@@ -33,7 +33,7 @@ yahoo!! fandoms im in : (not a lot 😞🙏🏻)
 - genshin impact
 - pjo / percy jackson
 
-![image alt[(https://github.com/aevsria/hi/blob/main/wahoo.jpg?raw=true)
+![image alt](https://github.com/aevsria/hi/blob/main/athena.jpg?raw=true)
 ^_^ ◡◡ ♡
 
 hobbies 
@@ -43,6 +43,8 @@ please iwc if im talking to some1 !! ^3^
 i am very shy / introverted </3 so ill be awkward nd most likely dry at first ,, just give me time to warm up !!
 
 i don't really talk much, since i dont know what to say , hopefully you understand !!
+
+this doesnt mean you still shouldnt int ,, i would gen love to make new friends and i need to so badly 😞
 
 thats it for noww , thankuu for reading !! :3
 
