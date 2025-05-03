@@ -34,13 +34,9 @@ yahoo!! fandoms im in : (not a lot 😞🙏🏻)
 
 ^_^ ◡◡ ♡
 
-"i got a feelin you got everything you wanted
-
-nd ur not wasting time stuck here like me." 💔
-
 please iwc if im talking to some1 !! ^3^
 
-i am very shy </3 so ill be awkward nd most likely dry at first ,, just give me time to warm up !!
+i am very shy / introverted </3 so ill be awkward nd most likely dry at first ,, just give me time to warm up !!
 
 thats it for noww , thankuu for reading !! :3
 
