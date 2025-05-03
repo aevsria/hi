@@ -25,6 +25,7 @@ Sprout i love you so much <3 anywaysss
 
 yahoo!! fandoms im in : (not a lot 😞🙏🏻)
 - dandys world
+- roblox
 - crk
 - forsaken
 - epic the musical
@@ -32,11 +33,16 @@ yahoo!! fandoms im in : (not a lot 😞🙏🏻)
 - genshin impact
 - pjo / percy jackson
 
+![image alt[(https://github.com/aevsria/hi/blob/main/wahoo.jpg?raw=true)
 ^_^ ◡◡ ♡
+
+hobbies 
 
 please iwc if im talking to some1 !! ^3^
 
 i am very shy / introverted </3 so ill be awkward nd most likely dry at first ,, just give me time to warm up !!
+
+i don't really talk much, since i dont know what to say , hopefully you understand !!
 
 thats it for noww , thankuu for reading !! :3
 
