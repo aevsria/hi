@@ -2,20 +2,24 @@
 
 ◡◡ yum yum i love strawberries 😋🍓
 
+plzplpzlsplplszplsz int i beg 😞
+
 ![image alt](https://github.com/aevsria/hi/blob/main/hmm.jpg?raw=true)
 
 Sprout i love you so much <3 anywaysss
 
-◡◡ | HELLOO!!!! i'm aevsria / aersvia, kate, sprout, wtv my cosplay is ♡
+◡◡ | HAAIAIIAI!1!1!! i'm aevsria / aersvia, kate, sprout, wtv my cosplay currently is !! ♡
 
 
-◡◡ | pronouns are she/her, nothing else plz ♡
+◡◡ | pronouns are she/her, nothing else plz !! ♡
 
 
-◡◡ | dnc / cover w/out permissions PLEASEEEE ♡ 
+◡◡ | dnc / cover w/out permissions PLEASEEEE !!1!1!1! ♡ 
 
 
 ◡◡ | most likely afk if im not talking to anyone . ♡
+
+~ ships int freely unless it's weird .
 
 ![image alt](https://github.com/aevsria/hi/blob/main/s%20s%20s%20s.jpg?raw=true)
 
@@ -33,3 +37,10 @@ yahoo!! fandoms im in : (not a lot 😞🙏🏻)
 "i got a feelin you got everything you wanted
 
 nd ur not wasting time stuck here like me." 💔
+
+please iwc if im talking to some1 !! ^3^
+
+i am very shy </3 so ill be awkward nd most likely dry at first ,, just give me time to warm up !!
+
+thats it for noww , thankuu for reading !! :3
+
