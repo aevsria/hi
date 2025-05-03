@@ -1,5 +1,7 @@
 # strawberry 
 
+( none of the art on here is made by me !! )
+
 ◡◡ yum yum i love strawberries 😋🍓
 
 plzplpzlsplplszplsz int i beg 😞
