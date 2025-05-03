@@ -32,4 +32,4 @@ yahoo!! fandoms im in : (not a lot 😞🙏🏻)
 
 "i got a feelin you got everything you wanted
 
-nd ur not wasting time stuck here like me."
+nd ur not wasting time stuck here like me." 💔
