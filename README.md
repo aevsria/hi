@@ -33,10 +33,18 @@ yahoo!! fandoms im in : (not a lot 😞🙏🏻)
 - genshin impact
 - pjo / percy jackson
 
-![image alt](https://github.com/aevsria/hi/blob/main/athena.jpg?raw=true)
 ^_^ ◡◡ ♡
 
-hobbies 
+![image alt](https://github.com/aevsria/hi/blob/main/athena.jpg?raw=true)
+
+hobbies !! :
+
+- art / drawing
+- baking
+- reading
+- listening to music
+- playing games
+- singing (sometimes)
 
 please iwc if im talking to some1 !! ^3^
 
