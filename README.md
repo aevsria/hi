@@ -1,6 +1,6 @@
 # strawberry 
 
-"if you could, would you go back and do it all again?"
+~ "if you could, would you go back and do it all again?" .
 
 yes. every single time ♡
 
