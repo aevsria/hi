@@ -14,7 +14,7 @@ plzplpzlsplplszplsz int i beg 😞
 
 Sprout i love you so much <3 anywaysss
 
-◡◡ | HAAIAIIAI!1!1!! i'm aevsria / aersvia, kate, sprout, wtv my cosplay currently is !! ♡
+◡◡ | HAAIAIIAI!1!1!! i'm aevsria / aersvia, kate, sprout, eternal sugar, mizi wtv my cosplay currently is !! ♡
 
 
 ◡◡ | pronouns are she/her, nothing else plz !! ♡
