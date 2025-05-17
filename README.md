@@ -1,7 +1,5 @@
 # strawberry 
 
-![profile views]
-
 ~ "if you could, would you go back and do it all again?" .
 
 yes. every single time ♡
